@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with instant Polymarket Plugin | stop-loss-management + scalping-strategies, the #1 plugin. Includes stop-loss-management and scalping-strategies
 
 
 
